@@ -1,1 +1,1 @@
-# RISE & SHINE
+# RISE & SHINE YOGA
